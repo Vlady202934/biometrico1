@@ -1,6 +1,6 @@
 # biometrico1
 enlace para descarga el apk de prueba 
-https://drive.google.com/drive/folders/1fafYzEExu2FibR8QW2Kq76gIDmHz0tYN?usp=sharing
+https://mega.nz/folder/t8AEiD6R#59-DDms2INobLwVLcMXl2g
 
 video de evidencia del funcionamiento de la app
 
